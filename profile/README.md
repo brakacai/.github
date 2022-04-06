@@ -1,1 +1,1 @@
-![Coveo](/CoveoGifAwesomeLong.gif)
+
